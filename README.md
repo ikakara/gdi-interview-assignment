@@ -16,6 +16,7 @@ Agenda:
 1. introduction (5-10 mins)
 2. career planning (5 min)
   * "What Color Is YOUR PARACHUTE?" - http://www.jobhuntersbible.com/
+  * "Little Red Book of Selling" - https://www.gitomer.com/Jeffrey-Gitomer-Little-Red-Book-of-Selling-pluLRB.html
 3. Pair up w/ someone you don't know
 4. interviewing process (15 mins)
   * application & cover letter
